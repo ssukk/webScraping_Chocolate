@@ -1,0 +1,3 @@
+## Introduction
+
+While crafting Dubai chocolate, I discovered the importance of cocoa butter content for achieving that satisfying snap. This sparked my curiosity about how different chocolates are rated and what factors contribute to making a great chocolate. Additionally, I wanted to know which chocolate is considered the best in the world.
